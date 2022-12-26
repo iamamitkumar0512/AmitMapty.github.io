@@ -1,1 +1,0 @@
-# amitMapty.github.io
